@@ -3,6 +3,6 @@ Nowe repozytorium :)
 
 
 Cześć
-jestem na początku drogi. Dam radę i zrealizzuje plany o programowaniu
+jestem na początku drogi. Dam radę i zrealizuje plany o programowaniu
 Szybko i z powodzeniem 
 :)
